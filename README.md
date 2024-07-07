@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @SoyYLo
 - 👀 I’m interested in Art, Movies, Food
-- 🌱 I’m currently learning how to code and finesse
+- 🌱 I’m currently learning how to enhance my coding skills and be a well-rounded developer
 - 📫 How to reach me - walk the trail to mordor
 - 😄 Pronouns: She/Her
 - ⚡ Fun fact: I make music 
